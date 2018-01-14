@@ -1,2 +1,0 @@
-# joshuatay.github.io
-codeatuni
